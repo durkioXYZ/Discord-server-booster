@@ -1,6 +1,6 @@
 <h2 align="center">Discord Server: <a href="https://discord.gg/67FTptBdzy">discord.gg/67FTptBdzy</a></h2>
 
-<h1><a href="https://www.tiktok.com/@_duurrkio/video/7141507211167124738">Tuto Here</a></h1>
+<h1><a href="https://www.tiktok.com/@_duurrkio/video/7141509681859529985">Tuto Here</a></h1>
 
 <p align="center">
 <strong>Star and follows me <3</strong>
